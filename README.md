@@ -23,6 +23,19 @@
 * [Dores do traço oral](./Traços/Oral/dores.md)
 * [Recursos do oral](./Traços/Oral/recursos.md)
 * [Doenças do oral](./Traços/Oral/doenças.md)
+
+
+### Psicopata
+* [Introdução ao traço psicopata](./Traços/Psicopata/introdução.md)
+* [Formação do traço psicopata](./Traços/Psicopata/formação.md)
+* [Características do traço psicopata](./Traços/Psicopata/características.md)
+* [Formato do corpo psicopata](./Traços/Psicopata/formato-do-corpo.md)
+* [Dores do traço psicopata](./Traços/Psicopata/dores.md)
+* [Recursos do psicopata](./Traços/Psicopata/recursos.md)
+* [Doenças do psicopata](./Traços/Psicopata/doenças.md)
+
+
+
 ---
 
 ### Referências
