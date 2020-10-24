@@ -35,6 +35,14 @@
 * [Doenças do psicopata](./Traços/Psicopata/doenças.md)
 
 
+### Masoquista
+* [Introdução ao traço masoquista](./Traços/Masoquista/introdução.md)
+* [Formação do traço masoquista](./Traços/Masoquista/formação.md)
+* [Características do traço masoquista](./Traços/Masoquista/características.md)
+* [Formato do corpo masoquista](./Traços/Masoquista/formato-do-corpo.md)
+* [Dores do traço masoquista](./Traços/Masoquista/dores.md)
+* [Recursos do masoquista](./Traços/Masoquista/recursos.md)
+* [Doenças do masoquista](./Traços/Masoquista/doenças.md)
 
 ---
 
