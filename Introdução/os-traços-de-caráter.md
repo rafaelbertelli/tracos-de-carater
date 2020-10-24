@@ -1,6 +1,6 @@
-# São cinco os traços de carater
+# São cinco os traços de caráter
 
-* Esquisóide
+* Esquizoide
 * Oral
 * Psicopata
 * Masoquista

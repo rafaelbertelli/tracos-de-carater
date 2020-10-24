@@ -1,5 +1,16 @@
-# Traços de carater
+# Traços de caráter
 
+## Introdução
+* [Os traços de caráter](./Introdução/os-traços-de-caráter.md)
+* [Composição dos traços de caráter](./Introdução/composição-dos-traços-de-caráter.md)
+
+## Os traços de caráter
+
+### Esquizoide
+* [Introdução ao traço esquizoide](./Traços/Esquizoide/introdução.md)
+* [Formação do traço esquizoide](./Traços/Esquizoide/formação.md)
+
+---
 
 ### Referências
 
