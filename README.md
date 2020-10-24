@@ -9,7 +9,14 @@
 ### Esquizoide
 * [Introdução ao traço esquizoide](./Traços/Esquizoide/introdução.md)
 * [Formação do traço esquizoide](./Traços/Esquizoide/formação.md)
+* [Características do traço esquizoide](./Traços/Esquizoide/características.md)
+* [Dores do traço esquizoide](./Traços/Esquizoide/dores.md)
+* [Formato do corpo esquizoide](./Traços/Esquizoide/formato-do-corpo.md)
+* [Recursos do esquizoide](./Traços/Esquizoide/recursos.md)
+* [Doenças do esquizoide](./Traços/Esquizoide/doencas.md)
 
+### Oral
+* []
 ---
 
 ### Referências
