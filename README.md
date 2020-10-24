@@ -13,7 +13,7 @@
 * [Formato do corpo esquizoide](./Traços/Esquizoide/formato-do-corpo.md)
 * [Dores do traço esquizoide](./Traços/Esquizoide/dores.md)
 * [Recursos do esquizoide](./Traços/Esquizoide/recursos.md)
-* [Doenças do esquizoide](./Traços/Esquizoide/doencas.md)
+* [Doenças do esquizoide](./Traços/Esquizoide/doenças.md)
 
 ### Oral
 * [Introdução ao traço oral](./Traços/Oral/introdução.md)
@@ -22,7 +22,7 @@
 * [Formato do corpo oral](./Traços/Oral/formato-do-corpo.md)
 * [Dores do traço oral](./Traços/Oral/dores.md)
 * [Recursos do oral](./Traços/Oral/recursos.md)
-* [Doenças do oral](./Traços/Oral/doencas.md)
+* [Doenças do oral](./Traços/Oral/doenças.md)
 ---
 
 ### Referências
