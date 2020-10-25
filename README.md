@@ -24,7 +24,6 @@
 * [Recursos do oral](./Traços/Oral/recursos.md)
 * [Doenças do oral](./Traços/Oral/doenças.md)
 
-
 ### Psicopata
 * [Introdução ao traço psicopata](./Traços/Psicopata/introdução.md)
 * [Formação do traço psicopata](./Traços/Psicopata/formação.md)
@@ -34,7 +33,24 @@
 * [Recursos do psicopata](./Traços/Psicopata/recursos.md)
 * [Doenças do psicopata](./Traços/Psicopata/doenças.md)
 
+### Masoquista
+* [Introdução ao traço masoquista](./Traços/Masoquista/introdução.md)
+* [Formação do traço masoquista](./Traços/Masoquista/formação.md)
+* [Características do traço masoquista](./Traços/Masoquista/características.md)
+* [Formato do corpo masoquista](./Traços/Masoquista/formato-do-corpo.md)
+* [Dores do traço masoquista](./Traços/Masoquista/dores.md)
+* [Recursos do masoquista](./Traços/Masoquista/recursos.md)
+* [Doenças do masoquista](./Traços/Masoquista/doenças.md)
 
+
+### Rígido
+* [Introdução ao traço rígido](./Traços/Rígido/introdução.md)
+* [Formação do traço rígido](./Traços/Rígido/formação.md)
+* [Características do traço rígido](./Traços/Rígido/características.md)
+* [Formato do corpo rígido](./Traços/Rígido/formato-do-corpo.md)
+* [Dores do traço rígido](./Traços/Rígido/dores.md)
+* [Recursos do rígido](./Traços/Rígido/recursos.md)
+* [Doenças do rígido](./Traços/Rígido/doenças.md)
 
 ---
 

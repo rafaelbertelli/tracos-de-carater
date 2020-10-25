@@ -1,0 +1,1 @@
+# Dores do rígido

@@ -1,0 +1,1 @@
+# Doenças do rígido
