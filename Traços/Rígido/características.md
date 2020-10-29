@@ -37,3 +37,5 @@ No recurso, ele escolhe uma parceira e se entrega de corpo e alma.
 O rígido é a junção de todos os traços.
 
 O corpo do rígido é todo bem desenhado, um corpo bem bonito, harmonioso. Ele vai ter bom gosto.
+
+---

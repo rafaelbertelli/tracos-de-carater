@@ -27,3 +27,13 @@ Fala bastante, de forma descontrolada.
 Se alimenta de mais, engorda para se proteger, como se ele mesmo se abraçasse através da sua gordura,
 
 Tem medo do abandono
+
+---
+
+Sempre tem sensação de falta. 
+Pode acontecer do bebê receber o alimento físico, mas falta o alimento emocional. 
+
+O oral por excesso pode engordar mesmo que coma pouco.
+O oral por falta dificilmente engorda.
+
+

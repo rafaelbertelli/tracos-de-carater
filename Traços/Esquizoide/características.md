@@ -58,3 +58,17 @@ Ele não gosta de contato físico. Então não gosta de um abraço, de um toque.
 
 Exemplos de vivência: Se um esquizoide chega numa loja e o vendedor fica tocando nele, ele se sente extremamente desconfortável e ao sair dalí, provavelmente nunca mais voltará naquela loja. E ainda diz que não gostou do vendedor ('Não sei porque, mas não gostei daquele vendedor').  
 
+---
+
+É o bebê que se sentiu rejeitado, sem querer dizer que ele tenha sido rejeitado.
+
+Como mecanismo de defesa, ele desenvolve criatividade, desenvolve muitas habilidades mentais, ele gosta de ficar sozinho, no canto dele.
+
+É normal que ele tenha o corpo longilíneo, que pareça desconjuntado, que tenha pontas nos ossos.
+
+Evita sempre o contato com o próximo quando está na dor.
+
+Busca sempre a necessidade de existência, ele busca sempre existir.
+
+---
+
