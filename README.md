@@ -54,7 +54,13 @@
 
 ---
 
-### Referências
+## A Criança interior
+* [Como cuidar da sua criança interior e tornar-se um adulto saudável](./A%20criança%20interior/criança-interior.md)
+
+
+---
+
+## Referências
 
 * Wilhelm Reich
   * [Bio](https://pt.wikipedia.org/wiki/Wilhelm_Reich)
