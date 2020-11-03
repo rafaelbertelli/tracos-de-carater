@@ -10,7 +10,7 @@ Na frente dos outros ele é bonzinho, ele é queridinho, ele é calminho porque 
 
 Quando acontece algo inesperado ele não sabe o que fazer, não é bom de improvisar.
 
-Seu mecanismo de defesa é ter tudo muito bem calculado, tudo muito bem planejado. 
+Seu mecanismo de defesa é ter tudo muito bem calculado, tudo muito bem planejado.
 
 É nessa fase de desenvolvimento do masoquista é que se desenvolve o TOC.
 
@@ -28,11 +28,51 @@ Pode ser que ela fale alguma coisa e os pais mandem ela ficar quieta, que os pai
 
 ---
 
-Ele vai guardar tudo pra ele ao invés de compartilhar. 
+Ele vai guardar tudo pra ele ao invés de compartilhar.
 
-Quando está no recurso, ele planeja bem, pode gostar de coisas mais analíticas. 
+Quando está no recurso, ele planeja bem, pode gostar de coisas mais analíticas.
 Essa é a fase onde pode se desenvolver o TOC.
 
 O masoquista, na dor, precisa de tudo perfeito. Quando ele não tem controle das coisas, ele se sente extremamente irritado.
 
 ---
+
+## Características físicas
+
+Dobra nas costas (tetinhas nas costas)
+
+Pescoço corcunda
+
+Barriga firme, é uma coisa só
+
+Braços afastados do corpo, mais arqueados, meio que um movimento de separar pros lados.
+
+Pés virados pra frente, significa bom contato com a realidade.
+
+Marca no meio da sobrancelha.
+
+Pessoa detalhista.
+
+Agrada os outros. Abre mão de si pelos outros.
+
+A pessoa é multidisciplinar, sabe fazer muitas coisas.
+
+Gosta de atividades que ponham a raiva pra fora, a energia estagnada pra fora, luta, por exemplo.
+
+Tem vergonha de errar.
+
+Se adapta fácil.
+
+Se mantém em relacionamentos ruins, segurando firme e forte.
+
+Rosto quadrado.
+
+Sobrancelha pesada.
+
+Baixa estima.
+
+Fica muito tempo em profissões e relacionamentos, mesmo que não estejam mais saudáveis.
+
+Dedicação, compromisso, responsabilidade, são traços do masoquista.
+
+Dores na lombar

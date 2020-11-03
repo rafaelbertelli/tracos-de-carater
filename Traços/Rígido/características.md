@@ -1,6 +1,6 @@
 # Características do rígido
 
-Nessa fase do rígido, a criança percebe que essa sexualidade que ela descobriu agora, não pode ser usada. Os pais dizem que isso é feio, sujo errado, e ai essa criança joga essa sexualidade no lixo. 
+Nessa fase do rígido, a criança percebe que essa sexualidade que ela descobriu agora, não pode ser usada. Os pais dizem que isso é feio, sujo errado, e ai essa criança joga essa sexualidade no lixo.
 
 Então ela faz um corte na altura do diafrágma, que é a cintura, que muitas mulheres tem ela bem definida.
 
@@ -12,7 +12,7 @@ O pai é a pessoa mais importante do mundo, é o herói, mas o marido ela acha q
 
 Então a pessoa sempre vai se entregar pela metade.
 
-E ainda pode acontecer que essa pessoa encontre alguém que ela ame muito, que ela decida entregar todo seu amor para essa pessoa, dai o amor que ela entregou tem a representação de amor de pai/mãe e não amor de marido e mulher, dai a pessoa que entregou o amor, que representa o pai, não vai poder entregar a sexualidade. 
+E ainda pode acontecer que essa pessoa encontre alguém que ela ame muito, que ela decida entregar todo seu amor para essa pessoa, dai o amor que ela entregou tem a representação de amor de pai/mãe e não amor de marido e mulher, dai a pessoa que entregou o amor, que representa o pai, não vai poder entregar a sexualidade.
 Vai ter sexo, mas não vai ter graça, porque vai ser somente pela necessidade biológica e não pelo amor. A chance de existir traição é muito grande.
 
 O rígido triangula, em todos os relacionamentos, trabalho, hobby. Porque é o instinto dele competir por algo e se algo não der certo, ele tem o plano B.
@@ -27,7 +27,7 @@ O rígido tem muita energia sexual, energia de vida. É uma energia sexual sim, 
 
 Quando o rígido não descarrega essa energia, seja no trabalho, seja na sexualidade, ela vai ter enxaqueca.
 
-As pessoas que tem muita dor de cabeça, elas querem ter o controle de tudo, porque o rígido precisou controlar as coisas para ele ser o perfeito. Então ele vai ser bonito, ele vai ser sensual, vai ser sedutor, ou ele vai malhar muito e se ele veio do masoquista, ele vai desenvolver muito os músculos. 
+As pessoas que tem muita dor de cabeça, elas querem ter o controle de tudo, porque o rígido precisou controlar as coisas para ele ser o perfeito. Então ele vai ser bonito, ele vai ser sensual, vai ser sedutor, ou ele vai malhar muito e se ele veio do masoquista, ele vai desenvolver muito os músculos.
 Ele vai sempre querer ganhar, vai ser pró-ativo, vai ser bom em várias coisas, porque se ele for bom em várias coisas, ele não vai ser trocado de novo.
 
 No recurso, ele escolhe uma coisa e foca naquilo e se entrega de corpo e alma.
@@ -39,3 +39,41 @@ O rígido é a junção de todos os traços.
 O corpo do rígido é todo bem desenhado, um corpo bem bonito, harmonioso. Ele vai ter bom gosto.
 
 ---
+
+## Características
+
+Palavras chave do rígido: Gosto de liberdade, natureza, aventuras, injustiça
+
+Culote.
+
+Queixo proeminente.
+
+Lábios desenhados.
+
+Apresenta um corpo harmonioso.
+
+Busca se ocupar pra não enlouquecer. Vive trabalhando em alguma coisa, não descansa nunca.
+
+Deseja independência.
+
+Gosta de salgado.
+
+Gosta de quente.
+
+Tem a curva da lombar para a bunda bem marcada.
+
+Cintura marcada.
+
+Solteirice.
+
+Atividade física diariamente.
+
+Gosta de liberdade, mar, natureza.
+
+Gosta de aventuras e sobrevivência, tipo, acampar, sobreviver numa ilha deserta, etc.
+
+Tempo livre é raro.
+
+Relacionamentos não dão certo.
+
+Casamentos que não dão certo pode ter algum traço de rigidez.

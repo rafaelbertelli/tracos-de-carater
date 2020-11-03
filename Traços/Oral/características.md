@@ -11,7 +11,7 @@ Tem o seguinte comportamento:
 `P: Você prefere pizza ou cachorro-quente?`
 
 `R: Tanto faz`
- 
+
 Dai você escolhe cachorro-quente, só que ele queria pizza, e então ele fica bravo com você. Porque ela acha que você tinha obrigação de saber que ele queria comer pizza.
 
 O oral na dor vive achando que o outro deve adivinhar o que ele quer e que precisa serví-lo.
@@ -30,10 +30,46 @@ Tem medo do abandono
 
 ---
 
-Sempre tem sensação de falta. 
-Pode acontecer do bebê receber o alimento físico, mas falta o alimento emocional. 
+Sempre tem sensação de falta.
+Pode acontecer do bebê receber o alimento físico, mas falta o alimento emocional.
 
 O oral por excesso pode engordar mesmo que coma pouco.
 O oral por falta dificilmente engorda.
 
+---
 
+## Características físicas
+
+Gordura localizada
+
+Ombro viradinho pra frente
+
+Peito menor que a barriga
+
+Buraco no peito. A mulher tem os seios afastados.
+
+Pessoa sonhadora.
+
+Não enxerga de longe. Miopia. Tem medo do abandono. Evita o contato.
+
+Pede muito, esperando que de algum lugar venha o que a pessoa quer.
+
+Depressão.
+
+Volta a morar com os pais.
+
+Cabeça mais pra frente.
+
+Profissões: Enfermagem.
+
+É estabanada.
+
+Pernas fazem um X entre coxa e canela.
+
+Barriga embaixo, com a maior concentração de gordura somente embaio.
+
+Sulco do lado da boca
+
+Pés virados pra fora.
+
+Bolsa embaixo dos olhos.

@@ -1,6 +1,6 @@
 # Características do esquizoide
 
-Como ele levou durante a gestação inteira a energia para a cabeça, ele sente que 'não precisa' manter esse corpo e por isso, 
+Como ele levou durante a gestação inteira a energia para a cabeça, ele sente que 'não precisa' manter esse corpo e por isso,
 
 * ele será uma pessoa que não vai precisar comer muito,
 
@@ -14,11 +14,13 @@ Como ele levou durante a gestação inteira a energia para a cabeça, ele sente 
 
 * vai gostar de passar despercebido em todos os lugares,
 
-* vai evitar o contato com outras pessoas, porque ele aprendeu assim: 
+* vai evitar o contato com outras pessoas, porque ele aprendeu assim:
   
   `'Se eu não tenho contato com o mundo, ninguém me rejeita. Então é melhor eu ficar no meu canto, no meu mundo mental pra não me sentir rejeitado.'`
+
+* Pensa e acontece;
   
-Esse foi o mecanismo de defesa que ele aprendeu na gestação e o acompanhará até a vida adulta. 
+Esse foi o mecanismo de defesa que ele aprendeu na gestação e o acompanhará até a vida adulta.
 
 Se isso foi muito forte na infância, esse sentimento de rejeição, o adulto pode ficar preso nessa fase.
 
@@ -32,7 +34,7 @@ Isso vai ficando cada vez mais evidente porque vai reafirmando este comportament
 
 ---
 
-É um traço extremamente intuítivo. 
+É um traço extremamente intuítivo.
 
 É a pessoa que pega a informação no ar.
 
@@ -72,3 +74,37 @@ Busca sempre a necessidade de existência, ele busca sempre existir.
 
 ---
 
+## Características físicas
+
+Olhar desconectado.
+
+Não enxerga de perto.
+
+Prefere o frio.
+
+Gosta de estudar.
+
+Dedão do pé levantado.
+
+Pernas finas.
+
+Grande distância do pescoço para os ombros.
+
+Ossos proeminentes.
+
+Pés com translação pra dentro.
+
+Boca praticamente da cor da pele.
+
+Roupa de cor básica, escura, neutra.
+
+Muitas tatuagens, para se esconder, não se mostrar, não se expor.
+
+Lábio fino.
+
+Gostado espiritual.
+
+=================================================================
+
+Continuar em 1h25
+<https://www.youtube.com/watch?v=g-q7kFEASFk>

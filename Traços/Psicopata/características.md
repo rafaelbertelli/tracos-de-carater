@@ -20,7 +20,7 @@ Porque assim, se eu me apresento como alguém que vai zoar você de cara, você 
 
 ---
 
-Sente a dor da manipulação. Entende que tudo é na base da troca, que ela precisa dar algo para receber algo. 
+Sente a dor da manipulação. Entende que tudo é na base da troca, que ela precisa dar algo para receber algo.
 
 Gosta de manipular, de mentir, de seduzir, quando está na dor.
 
@@ -28,9 +28,7 @@ Quando está no recurso, pode ser um lider, valoriza a auto imagem.
 
 Este traço pode se esconder em outros traços.
 
-
 ---
-
 
 Essa criança pode trazer várias dores por ter se sentido traída, por tentar ter sido perfeita para agradar papai/mamãe.
 
@@ -42,3 +40,24 @@ Na dor, ele vive de aparência.
 
 No recurso, é proativa, vai gostar de entregar muito, de produzir muito, vai se entregar de corpo e alma pro que faz, vai ter bom gosto, vai gostar de ser exclusivo, valoriza a auto imagem.
 
+---
+
+## Características físicas
+
+Palavras chaves do psicopata: Potente, auto imagem, elogios.
+
+Olha pra cima, se elevando, se impondo.
+
+Pose pra tirar foto, valorização da auto imagem.
+
+Sobrancelha arqueada.
+
+Rosto assimétrico.
+
+Assimetria.
+
+Tira fotos de baixo pra cima, pra que o observador se sinta menor que ela.
+
+Formação do corpo em V. Mulheres com quadril largo. Homens com costas largas e cintura fina.
+
+Pernas afastadas, ocupando espaço, se impondo.
