@@ -106,5 +106,50 @@ Gostado espiritual.
 
 =================================================================
 
-Continuar em 1h25
-<https://www.youtube.com/watch?v=g-q7kFEASFk>
+Expressão do esquizoide: 'Vive no mundo da lua'.
+Por viver no mundo da lua, ele não tem muita conexão com a terra, com a realidade. E este é um dos motivos que faz com que ele não tenha realização.
+Ele não consegue ter ação.
+
+=========
+
+É comum que usem óculos, justamente para criar uma barreira de contato que os intercepte de outras pessoas.
+
+================
+
+parecem tristes.
+
+não tem muito diálogo.
+
+tem dificuldade para ter amizades.
+
+tem dificuldade em ter relacionamentos.
+
+geralmente as extremidades de seu corpo são frias, pois a energia não tende a ficar ali.
+
+mãos e pés não aquece, pois a energia vai para a cabeça.
+
+Para o esquizoide o corpo serve só pra carregar a cabeça.
+
+Parece apatico, sem vida.
+
+É comum que ele seja mais branco, mais claro, as vezes, transparentes.
+
+Seus lábios não tem cor, tem a mesma cor da pele. Lábios finos
+
+Olheiras profundas e escuras.
+
+=========
+
+São pessoas que não gostam de contato social, não gostam de contatos físicos, não gostam de ficar perto de outras pessoas.
+
+================================================================
+
+O esquizoide é muito criativo e então torna-se comum que ele ache que as coisas que ele pensa são maravilhosas de mais para compartilhar com o mundo então ele passa a guardar tudo pra si.
+
+É comum que eles não gostem de ficar perto de pessoas, até mesmo da família, pessoas que ele ama.
+Ele não sente falta de estar próximo de alguém.
+Estes contatos físicos, toques, abraços, acontecerão quando ele quiser, quando ele estiver preparado para isso e comumente, acontecerá quando ele estiver usando outro traço de caráter.
+
+================================================================
+
+Por ter tudo em seu mundo mental, são pessoas que não tem o impulso de realização, não necessitam de coisas, de um bom carro, uma boa casa, uma roupa legal, nada que venha do mundo externo, pois tudo se concentra em sua mente e tudo é dedicado para sua mente.

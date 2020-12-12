@@ -20,3 +20,14 @@ Não tem a coluna ereta.
 Não tem a cabeça levantada.
 
 Seu peito parece ser contraído, fechado.
+
+Assim como o corpo parece desconjuntado, o rosto também tem suas características, parecendo que não é real.
+Quando ele fala, parece que não existe muita expressão em seu rosto.
+É comum ter uma testa maior, que se sobressai em relação ao resto do rosto.
+
+Os ombros são mais pontudos.
+Os braços caídos, como se fossem pesados.
+Não tem muita respiração, sua caixa toraxica não é muito grande. A respiração é curta.
+Tem pernas finas.
+Pelve pequena.
+O corpo não é expressivo, é magrelo, sem vida.
