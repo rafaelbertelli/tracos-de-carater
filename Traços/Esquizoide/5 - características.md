@@ -153,3 +153,26 @@ Estes contatos físicos, toques, abraços, acontecerão quando ele quiser, quand
 ================================================================
 
 Por ter tudo em seu mundo mental, são pessoas que não tem o impulso de realização, não necessitam de coisas, de um bom carro, uma boa casa, uma roupa legal, nada que venha do mundo externo, pois tudo se concentra em sua mente e tudo é dedicado para sua mente.
+
+===============
+
+Vai gostar de cores monocromáticas, vai querer ser discreto. Seu carro será discreto. Não se preocupa com conforto nem com estéticas. Só se preocupa com um veículo que o leve de um lugar ao outro.
+
+Não tem um paladar aguçado.
+
+Não busca prazer físico.
+
+Tem fantasias sexuais, mas não as coloca em prática devido ao medo de ser rejeitado. Por conta disso, tem tendências à pornografia, pq ele pode usar suas fantasias sem demonstrar isso para outra pessoa.
+Mas quando ele confia e se entrega à alguém, ele reconhece ali como um meio para se sentir vivo. Ele se entregará muito para essa pessoa em que ele confia.
+
+Ele se desconecta do mundo real e passa a sentir que não pertence à este mundo.
+
+Na infância, é comum que tenha medo da morte, tenha pesadelos. Na fase adulta, é propenso à ter sindrome do pânico.
+
+Não tem muitos sentimentos de segurança, não se sente seguro de si. Não é alegre, não extravasa.
+
+Comum dormir em posição fetal, pq ele se sente ainda no útero.
+
+Fala monótona. Ele não coloca vida nas expressões.
+
+Quando ele se irrita de mais com algo, ele pode entrar num fúria, pode enlouquecer/explodir, bem como pode paralisar. Nesta situação, se ele tiver propenção, pode até se tornar agressivo.

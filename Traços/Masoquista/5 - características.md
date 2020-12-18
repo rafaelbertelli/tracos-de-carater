@@ -1,5 +1,7 @@
 # Características do traço de caráter masoquista
 
+Quando criança e está sendo repreendida, ela cola os pés no chão, em movimento para se firmar, contrai as pernas e o bumbum (no caso de uma repreensão por xixi ou cocô), encolhe os ombros, tendo aparência de não ter pescoço e ainda cola os braços ao lado do corpo. Assim que se forma o corpo do masoquista.
+
 É a criança bem quietinha, que não reclama de nada, que não tem opinião própria, que fica na dela, que faz tudo o que os pais mandam, porque assim ela não é humilhada de novo.
 
 Tem um acumulo de energia, as emoções, a dor do outro, tudo que ela interpreta, ela vai guardando dentro de si.
@@ -75,4 +77,37 @@ Fica muito tempo em profissões e relacionamentos, mesmo que não estejam mais s
 
 Dedicação, compromisso, responsabilidade, são traços do masoquista.
 
-Dores na lombar
+Dores na lombar.
+
+A boca dele da a sensação de estar sempre triste, é uma boca que parece um 'U' invertido, sempre virada para baixo.
+
+Te da a sensação de ser uma pessoa submissa.
+
+Rosto e queixo quadrados.
+
+Quando a pessoa sorri, você perceque que existe uma pressão na região da mandíbula. É como se essa pessoa guardasse toda a raiva dentro dela e ela tivesse sempre pressionando o maxilar devido à raiva.
+Justamente por acumular toda essa raiva, quando ele se enxe, ele pode explodir, pondo tudo pra fora, tornando-se uma pessoa raivosa, agressiva, pode se tornar uma pessoa bastante nervosa e irritada.
+
+O motivo dele não colocar essa raiva pra fora constantemente é justamente o medo de ser humilhado.
+
+Seu maior medo é de não ser amado.
+Vai fazer tudo para agradar, na tentativa de ser amado.
+
+Seu olhar pode ser bastante meigo, bastante simpático. Diferente do oral, que tem o olhar  pedinte.
+Traz o comportamento da infância de guardar tudo dentro de si.
+
+Ele tem muita dificuldade em demostrar seus sentimentos, sua voz pode parecer uma voz de lamento.
+
+Dinâmica de vida: muito esforço e pouco reconhecimento. Isso se aplica em todas as áreas da vida, até nos relacionamentos.
+
+Ele se esforça de mais para agradar e normalmente não é reconhecido, mas quando o é, ele acha que aquilo não é sincero, que ele não merece. Ele se sente indigno.
+
+Profissões: É comum encontrá-los como sendo operários, pessoas que se esforçam muito e ganham pouco dinheiro.
+Também se encontram em esportes de luta, pq essa é uma de suas características, de aguentar tudo.
+
+Na sexualidade, pode ser impotente e é bastante comum que ele sinta muita vergonha. Vergonha de estar com outra pessoa, vergonha de se entregar e por esse motivo, ele pode partir para a pornografia, porque ali ele não vai ter julgamente, não vai ser humilhado e sozinho ele pode ser quem ele realmente é.
+
+Ele tem muito medo da liberdade e ele sempre vai buscar situações e pessoas onde ele se sinta preso e ele não possa se expressar quem ele realmente é, vivendo nessa dinâmica de sufocamente, de não ser realmente livre.
+
+Seu carro de preferência é o carro em que ele fique comprimido, apertado. Ele não busca conforto, estética.
+Isso se aplica para vestimenta. Ele desvaloriza sua imagem pessoal, então é comum que eles usem roupas apertadas, menor que o tamanho deles, de forma que fique desproporcional, desvalorizando seu corpo. (quando está na dor)
